@@ -1,0 +1,34 @@
+[
+  {
+    "nama": "Kemeja Batik Pria",
+    "deskripsi": "Kemeja batik modern dengan bahan katun adem.",
+    "usia": "18-35",
+    "ukuran": [
+      "M",
+      "L",
+      "XL"
+    ],
+    "warna": [
+      "Biru",
+      "Coklat"
+    ],
+    "harga": 179000,
+    "foto": "images/kemeja1.jpg"
+  },
+  {
+    "nama": "Blouse Wanita Polos",
+    "deskripsi": "Blouse lengan pendek cocok untuk kerja dan santai.",
+    "usia": "25-40",
+    "ukuran": [
+      "S",
+      "M",
+      "L"
+    ],
+    "warna": [
+      "Putih",
+      "Hitam"
+    ],
+    "harga": 129000,
+    "foto": "images/blouse1.jpg"
+  }
+]

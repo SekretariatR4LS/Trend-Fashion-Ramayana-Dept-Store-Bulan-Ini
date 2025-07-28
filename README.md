@@ -1,2 +1,21 @@
 # Trend-Fashion-Ramayana-Dept-Store-Bulan-Ini
-Fashion
+Koleksi T-shirt Paling Laku Bulan Juli![08239166](https://github.com/user-attachments/assets/6c4d7f8c-5dab-4bfc-b2e6-f914e3ffc407)
+![08239163](https://github.com/user-attachments/assets/a0413285-7791-41b1-96ac-deb412abcef9)
+![08239162](https://github.com/user-attachments/assets/76938a4d-7846-41a4-91b0-46b7110d4aba)
+![08239161](https://github.com/user-attachments/assets/ce1ff022-069c-4238-8c09-ffde81472077)
+![08239074](https://github.com/user-attachments/assets/a0c54d69-3cfb-4348-903f-e761b21abe01)
+![08239073](https://github.com/user-attachments/assets/6c8c6847-05e4-41e9-ab7a-0c4d6de68823)
+![08238526](https://github.com/user-attachments/assets/0cf5bfc6-9995-4089-8c93-fae9d466b61f)
+![08237641](https://github.com/user-attachments/assets/f905596f-05c3-4290-8150-54783f0e1465)
+![08237051](https://github.com/user-attachments/assets/a60d0632-9a05-4a01-9288-5ac828632b7f)
+![08239376](https://github.com/user-attachments/assets/6bc867df-44c8-43da-881f-7f32dcb5671e)
+![08239375](https://github.com/user-attachments/assets/5bb9f198-76ae-4bb5-975e-588bea2c733a)
+![08239311](https://github.com/user-attachments/assets/dfa1202d-c3a1-4a96-83ff-feff6ea821fc)
+![08239182](https://github.com/user-attachments/assets/69511284-47fd-4640-9013-d6aaa9a8f50a)
+![08239180](https://github.com/user-attachments/assets/bb16cf3b-bf19-47fb-968b-29545d430094)
+![08239178](https://github.com/user-attachments/assets/33691448-be1e-4f11-b48e-f6b28db16730)
+![08239177](https://github.com/user-attachments/assets/c4fe164a-6652-41ee-9ed3-557709b75ed8)
+![08239168](https://github.com/user-attachments/assets/04d188e9-aa0c-42c6-8e7b-c411e189ff68)
+
+![08236630](https://github.com/user-attachments/assets/ce3d711f-9ba7-42f0-b21d-06da0ad5ad96)
+![08239167](https://github.com/user-attachments/assets/0e992936-5544-4aa4-a717-5ddc5fea9abc)
